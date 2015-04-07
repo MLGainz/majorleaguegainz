@@ -1,0 +1,3 @@
+# majorleaguegainz
+Lifting is love, lifting is life!
+I don't know what I'm doing yet...
